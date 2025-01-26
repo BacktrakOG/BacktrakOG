@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @RefreshOG aka fmgnio or restorefn
+- 👀 I’m interested in OG Fortnite
+- 🌱 I’m currently learning C# and JS
+- 📫 How to reach me? You can message me via discord restorefn
